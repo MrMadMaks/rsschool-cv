@@ -8,3 +8,12 @@ I am open to learning and focused on results.
 ## Skills
 I know HTML, CSS, Tilda, Figma, Photoshop, Illustrator at an advanced level.
 ## My commercial works
+[https://smart-stories.ru](https://smart-stories.ru) <br>
+[https://online-kosa.ru](https://online-kosa.ru)
+## Education
+Auto transport and Electromechanical College
+* Vehicle repair and maintenance technician
+## English
+B1(intermediant)
+## Achievements
+I am included in the encyclopedia of gifted children of Russia for 2007.
