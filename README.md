@@ -1,1 +1,1 @@
-***CV***
+https://mrmadmaks.github.io/rsschool-cv/cv
